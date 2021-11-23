@@ -1,1 +1,1 @@
-![Dave'sDevilSticks](https://user-images.githubusercontent.com/89880316/142740083-80dd07d8-e9e6-4f64-b3d0-e5df45829626.JPG)
+![Ekran Alıntısı](https://user-images.githubusercontent.com/89880316/143066609-ee7154e3-11dd-4be8-a447-dc34e9f5c918.JPG)

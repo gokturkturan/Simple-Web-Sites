@@ -1,2 +1,2 @@
-# SimpleWebSites
-Simple Web Sites
+# WebSites
+Web Sites
